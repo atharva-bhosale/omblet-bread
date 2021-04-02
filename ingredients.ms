@@ -1,0 +1,1 @@
+two eggs, chilli powder, turmaric powder, salt, onion, tomato, bread packet.
